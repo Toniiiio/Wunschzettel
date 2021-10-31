@@ -1,7 +1,5 @@
-Regenmantel für Rucksack
+Beinlinge
+Armlinge
+Winterhose
 
-Kurze Radhose die besser passt
-
-Fahrradtasche vorne und hinten
-
-Gutschein für Leistungstest
+360grad video
