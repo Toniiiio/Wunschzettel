@@ -1,4 +1,3 @@
-https://www.decathlon.de/p/triathlon-lenkeraufsatz-ld-aluminium/_/R-p-303804
 
 https://www.amazon.com/-/de/dp/0979463629/ref=cm_cr_arp_d_product_top?ie=UTF8
 
